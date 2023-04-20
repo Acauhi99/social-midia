@@ -1,1 +1,1 @@
-# social-midia
+# social-links
